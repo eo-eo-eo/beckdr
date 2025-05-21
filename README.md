@@ -1,2 +1,1 @@
-# beckdr
-beckdr
+if ur reading this fuck you
